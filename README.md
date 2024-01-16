@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **arjunsaroha98@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1SCiBJ6YC0OnBu4ILMgLig8clZvT95qel/view?usp=drivesdk](https://drive.google.com/file/d/1SCiBJ6YC0OnBu4ILMgLig8clZvT95qel/view?usp=drivesdk)
+- 📄 Know about my experiences [https://drive.google.com/file/d/13uaNJjOaaCkTAdXwtqswbLeD4_y8rnkB/view?usp=sharing](https://drive.google.com/file/d/1SCiBJ6YC0OnBu4ILMgLig8clZvT95qel/view?usp=drivesdk)
 
 - ⚡ Fun fact **I think I'm funny😊**
 
